@@ -1,1 +1,5 @@
-# project26
+It was so well-liked that she had her granddaughter Martha Parke Custis copy it down for use by other members of the family. Martha Washington’s recipe, like many others of its time, is vague regarding certain ingredients as well as the method of preparation. For that reason, we used related period recipes, in addition to Mrs. Washington’s, to develop a great cake resembling the one her family knew. Sources included the original Custis family recipe, Hannah Glasse’s Rich Cake, and Elizabeth Raffald’s Bride Cake.
+
+The result is a rich confection, laced with brandy and Madeira, that is similar to the fruitcakes we are familiar with today. Although this cake takes some time to prepare, it keeps well when wrapped in aluminum foil and stored in a covered cake tin.
+
+This recipe is a modern adaptation of the 18th-century original. It was created by culinary historian Nancy Carter Crump for the book Dining with the Washingtons.
